@@ -1,6 +1,6 @@
 # Stuff I've Crocheted
-## Here are some of the things I've crocheted over the past year or so.
-Patterns and yarn used are linked, if applicable!
+## Here are some of the things I've crocheted over the past year or so!
+Patterns and yarn used are linked, if applicable :D
 
 
 #### Circles/Coasters ([pattern](https://www.crochetandtea.com/post/how-to-crochet-a-flat-circle-coaster), [Red Heart Super Saver yarn](https://www.yarnspirations.com/red-heart-super-saver-yarn/E300.html?))
