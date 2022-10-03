@@ -6,7 +6,7 @@ Patterns and yarn used are linked, if applicable :D
 #### Circles/Coasters ([pattern](https://www.crochetandtea.com/post/how-to-crochet-a-flat-circle-coaster), [Red Heart Super Saver yarn](https://www.yarnspirations.com/red-heart-super-saver-yarn/E300.html?))
 > <img src="IMG_0158[1].HEIC" width=400>
 
-#### Simple Flower Coasters (don't remember the pattern, [Red Heart Super Saver yarn](https://www.yarnspirations.com/red-heart-super-saver-yarn/E300.html?))
+#### Simple Flower Coasters ([first pattern] (https://youtu.be/Ium6UBEEpm0), second pattern, [Red Heart Super Saver yarn](https://www.yarnspirations.com/red-heart-super-saver-yarn/E300.html?))
 > <img src="IMG_0156[1].HEIC" width=400> <img src="IMG_0157[1].HEIC" width=400>
 
 #### Sunburst Granny Square ([pattern](), thrifted black yarn, [Red Heart Super Saver yarn](https://www.yarnspirations.com/red-heart-super-saver-yarn/E300.html?), [Red Heart Heat Wave yarn](https://www.yarnspirations.com/red-heart-heat-wave-yarn/E903.html))
